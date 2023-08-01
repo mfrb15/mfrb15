@@ -1,3 +1,4 @@
+![](https://media.licdn.com/dms/image/D4E16AQENyibr3l1Pzw/profile-displaybackgroundimage-shrink_350_1400/0/1686435311647?e=1696464000&v=beta&t=jxOmrsac7jMNUi-ODnpdylYuu1b_M5NdEh64g4_ccIg)
 # 💫 About Me:
 👩🏻‍💻 Desarrolladora Front-End<br>✨Apasionada por el diseño<br>🤝Me encanta trabajar en equipo<br>🧠 Creativa<br>📲 Contáctame: mrodriguezbello26@gmail.com<br>💪🏻 En mi tiempo libre me gusta aprender nuevas tecnologias y hacer ejercicio
 
